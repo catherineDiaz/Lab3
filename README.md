@@ -1,1 +1,1 @@
-# Lab3
+# Catherine Diaz Lab 3
